@@ -1,4 +1,4 @@
-<small>℘ writing doesn't have to be perfect</small>
+###### ℘ writing doesn't have to be perfect</small>
 
 ⾕︶𝆹𝅥⏝﹒Senseimann, Hernandez, Fierro. There are several nicknames but each one is a little infamous, so for comfort my name tends to change.
 - 18y. Me gusta el roleplaying y es por lo único que me gusta ser recordado/asociado en la virtualidad, incluso si por desgracia es de mala manera.
@@ -9,4 +9,4 @@
 回ㆍNo me siento cómodo agregando personas de 15 años o menos, no me molesta hablar, solo nada de chistes raros, soy adulto, así que soy muy cauteloso con los niños.
 
 Mi razón para estar en el Internet es por mis amigos que aprecio y el roleplaying, no me aproblemo por mi registro problemático excepto aparezca una acusación irrealista, pero lo tomo de quien viene.
-<small>℘ more yapper than listener, tbh.</small>
+###### ℘ more yapper than listener, tbh.</small>
