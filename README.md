@@ -10,3 +10,5 @@
 
 Mi razón para estar en el Internet es por mis amigos que aprecio y el roleplaying, no me aproblemo por mi registro problemático excepto aparezca una acusación irrealista, pero lo tomo de quien viene.
 ###### ℘ more yapper than listener, tbh.</small>
+
+**smh**
