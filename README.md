@@ -18,3 +18,5 @@ Los juegos me frustran con suma facilidad, por ello dedico mi tiempo a charlar o
 **Nuclear Throne, Dead Cells, Rainworld, Katana Zero, Ultrakill**, etcétera de tal índole son de mi agrado y me gusta charlar de ellos en algunos contextos.
 
 菍﹒Para comunicaciones, **disc:** *senseimann* (sujeto a cambios) o *florentinoheracles@gmail.com*
+
+###### Stratovarius - Hunting High And Low
