@@ -15,6 +15,6 @@ Los juegos me frustran con suma facilidad, por ello dedico mi tiempo a charlar o
 
 **Roblox, Minecraft, Terraria, Minecraft, Genshin Impact** es lo poco en multijugador que juego, pero raramente juego Genshin.
 **Fightcade** con **Street Fighter** (o parecidos) es lo poco que acepto de competitivo.
-**Nuclear Throne, Dead Cells, Katana Zero, Ultrakill**, etcétera de tal índole son de mi agrado y me gusta charlar de ellos en algunos contextos.
+**Nuclear Throne, Dead Cells, Rainworld, Katana Zero, Ultrakill**, etcétera de tal índole son de mi agrado y me gusta charlar de ellos en algunos contextos.
 
 菍﹒Para comunicaciones, **disc:** *senseimann* (sujeto a cambios) o *florentinoheracles@gmail.com*
